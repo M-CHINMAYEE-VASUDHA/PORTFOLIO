@@ -1,0 +1,2 @@
+# Portfolio 
+ A portfolio is a comprehensive collection of work, documents, or projects that demonstrate an individual’s skills, experiences, achievements, and capabilities. It serves as a visual and tangible representation of expertise in a specific field or profession. Portfolios are widely used across industries such as art, design, photography, writing, technology, and business, enabling professionals to showcase their work to potential employers, clients, or collaborators.
